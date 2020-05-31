@@ -1,4 +1,3 @@
 # ThulioArts
-Pagina Oficial de ThulioArts
-Emmmmm no se el GitHub me Hizo poner esto asi que ni idea xD
+Pagina Oficial De ThulioArts Donde Encontraran Cosas Muy Interesantes Sobre Nuestra Comunidad Y Nuestros Videos, Estaran Al Tanto De Cualquier Noticia Y No Se Perderan Nada
 
